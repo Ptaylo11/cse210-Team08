@@ -8,3 +8,7 @@ Hello! My name is Marianne Johnson. I'm from Arizona and this is my 4th semester
 Stephen Sanders
 
 Hey, I'm Stephen. I live in Illinois, and hoping this semester goes well for me. I don't have much interesting with me either, my interests are drawing and video games, kinda like Marianne. Once we have github figured out, things ought to go more smoothly.
+
+Payton Taylor
+
+Hello, I am Payton. I am from Idaho Falls and something interesting about me is that I have been racing dirt bikes since I was 4 years old. I enjoy video games and being outdoors. I look forward to working with you guys!!
